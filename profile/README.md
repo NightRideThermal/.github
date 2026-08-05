@@ -1,1 +1,1 @@
-## Welcome to NightRide Thermal 👋
+## Welcome to NightRide Thermal
